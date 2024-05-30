@@ -11,6 +11,8 @@ Files downloaded from the site (via the download asset button that comes up) cou
 # Links
 Join the Den of Wolves discord at https://dow.gg/web_discord (link from there website) we hangout in #district-decode-discussion
 
-The comunity google doc is pinned in the discord started by @PsychoticxMusic https://docs.google.com/spreadsheets/d/1AZP0jbKjDrnA42fWwxATbcaB7JFI7e5q-6GG6icvv-k/edit#gid=1278825196&range=A1
+Comunity Google sheet by PsychoticxMusic https://docs.google.com/spreadsheets/d/1AZP0jbKjDrnA42fWwxATbcaB7JFI7e5q-6GG6icvv-k/edit#gid=1278825196&range=A1
+
+Comunity padlet by Cook13s https://padlet.com/darkhiei7/den-of-wolves-arg-ks4tofnvd1nrwyvk
 
 Yes my spelling sucks. ~BombTime
